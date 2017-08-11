@@ -2,7 +2,7 @@
 good for nothing
 
 
-I'm is good for nothing 
+I'm good for nothing 
 
 
 
